@@ -9,4 +9,3 @@
 💬 Ask me about my journey from IT support to coding
 📫 How to reach me: trevhegge34@gmail.com
 ⚡ Fun fact: I can troubleshoot a computer faster than I can decide what to have for lunch
--->
